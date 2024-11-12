@@ -1,7 +1,3 @@
-Claro! Aqui está uma versão adaptada para sua conta profissional:
-
----
-
 ### Olá Mundo! Eu sou Deilton Pedro 🖖
 
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/deilton-pedro-465b1b23a/)
