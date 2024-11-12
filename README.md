@@ -22,8 +22,7 @@
 
 ## Entre em Contato
 
-Se você tiver alguma dúvida ou estiver interessado em colaborar em projetos, sinta-se à vontade para me enviar uma mensagem no LinkedIn. Sempre gosto de trocar ideias e explorar novas oportunidades!
-
+Fique à vontade para entrar em contato pelo LinkedIn para qualquer dúvida ou consulta profissional ou apenas me seguir. Estou à disposição para ajudar no que for necessário!
 ## Agradecimentos
 
 Obrigado por visitar meu perfil! Se algum projeto chamou sua atenção, não esqueça de deixar uma estrela e acompanhar meu trabalho. 😊
